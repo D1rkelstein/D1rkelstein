@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @D1rkelstein
+- 👀 I’m interested in Trading Crypto Currencys 
+- 💞️ I’m looking to collaborate on a trading Bot 
+- if you want to help me or you need help on Crypto based topics, dont hesitate on contacting me :) 
